@@ -1,0 +1,2 @@
+# mongolianstock
+photo and designin 
